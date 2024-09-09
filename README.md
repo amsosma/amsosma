@@ -1,0 +1,3 @@
+Marius NTNU student
+
+sivilingeniør ;)
